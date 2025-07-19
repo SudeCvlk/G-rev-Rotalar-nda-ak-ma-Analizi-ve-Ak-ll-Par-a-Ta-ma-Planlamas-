@@ -1,1 +1,1 @@
-# G-rev-Rotalar-nda-ak-ma-Analizi-ve-Ak-ll-Par-a-Ta-ma-Planlamas-
+# Gorev-Rotalarinda-Cakisma-Analizi-ve-Akilli-Parca-Tasima-Planlamasi
